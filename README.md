@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Surjeet. ..
+- 👀 I’m interested in. ..Learn new technology. ..
+- 🌱 I’m currently learning ...About Github 
+- 💞️ I’m looking to collaborate on ...Github platform. ..
+- 📫 How to reach me. ..7452808751/ humpyblue07@gmail.com
+- 😄 Pronouns: ... Hindi & English 
+- ⚡ Fun fact: .. 😇😇
